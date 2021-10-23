@@ -11,3 +11,5 @@
 
 ![Q-6](https://user-images.githubusercontent.com/81481090/138539116-460539d0-cdc8-4f77-8252-e099857812eb.png)
 ![Q-5,7](https://user-images.githubusercontent.com/81481090/138539208-482b8a32-c58a-4445-a809-9e789e994101.png)
+
+![Q-4](https://user-images.githubusercontent.com/81481090/138539272-21600264-230d-4e46-a6d5-0f23b56b31dd.png)
