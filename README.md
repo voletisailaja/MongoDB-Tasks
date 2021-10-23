@@ -8,3 +8,5 @@
 
 ![Q-5,7](https://user-images.githubusercontent.com/81481090/138539042-bcb0cac2-ba4a-4bf2-a2d2-0985cf02d987.png)
 1}
+
+![Q-6](https://user-images.githubusercontent.com/81481090/138539116-460539d0-cdc8-4f77-8252-e099857812eb.png)
